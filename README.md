@@ -1,4 +1,4 @@
-![ZONE OF THE ENDERS 2 MARS - Tradução PT-BR](https://raw.githubusercontent.com/Braga-16bit/ZOE2_MARS_TRADUCAO_PTBR_v1.0/refs/heads/main/Zona%20dos%20Enders_%20The%202nd%20RUNNER.png)
+![ZONE OF THE ENDERS 2 MARS - Tradução PT-BR](assets/capa.png)
 
 ATENÇÃO: IDIOMA DO JOGO
 
