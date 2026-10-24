@@ -1,4 +1,5 @@
-![ZONE OF THE ENDERS 2 MARS - Tradução PT-BR](assets/capa.png)
+<img width="1672" height="941" alt="capa" src="https://github.com/user-attachments/assets/3ef3cff4-962b-4dd7-96f0-2a9c4a641b73" />
+
 
 ATENÇÃO: IDIOMA DO JOGO
 
