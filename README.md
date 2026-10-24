@@ -1,4 +1,4 @@
-# ZONE OF THE ENDERS: THE 2nd RUNNER – M∀RS STEAM| Tradução PT-BR 🇧🇷
+# ZONE OF THE ENDERS: THE 2nd RUNNER – M∀RS STEAM| Tradução PT-BR
 
 ## Sobre o projeto
 
