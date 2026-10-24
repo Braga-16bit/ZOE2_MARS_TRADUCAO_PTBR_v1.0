@@ -1,3 +1,6 @@
+![ZONE OF THE ENDERS 2 MARS - Tradução PT-BR](Zona%20dos%20Enders_The%202nd%20RUNNER.png)
+
+
 # ZONE OF THE ENDERS: THE 2nd RUNNER – M∀RS STEAM| Tradução PT-BR
 
 ## Sobre o projeto
